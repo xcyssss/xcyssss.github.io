@@ -1,12 +1,32 @@
+#### Honors & Awards
 
-- Outstanding Graduate Award (CUMT), 2025.
+**Graduate Studies (2024-Present)**
 
-- National Scholarship for Graduate Students (Ministry of Education, China), 2024.
+- **Huahong Scholarship** (华虹奖学金), ShanghaiTech University, 2025
 
-- First-Prize Graduate Academic Scholarship (CUMT), 2023 & 2024.
+**Undergraduate Studies (2020-2024)**
 
-- Outstanding Undergraduate Thesis Award (Jiangsu, China), 2022.
+*Academic Performance*
 
-- First-Prize Corporate Scholarship (CUMT), 2020.
+- CET4: 580, CET6: 557, GPA: 3.83/4.0
+- Major Ranking: 2/50
 
-- First-Prize Undergraduate Academic Scholarship (CUMT), 2019.
+*省市级*
+
+- 2023年全国大学生电子设计大赛北京市三等奖
+- 2022年华北五省（市、自治区）大学生机器人大赛一等奖
+- 2022年北京市大学生机器人大赛二等奖
+- 第七届中国国际"互联网+"大学生创新创业大赛（北京赛区）三等奖
+- 第十届"大唐杯"全国大学生移动通信5G技术大赛北京赛区本科A组三等奖
+- 第九届"大唐杯"全国大学生移动通信5G技术大赛北京赛区本科A组二等奖
+- 2021年华北五省（市、自治区）大学生机器人大赛二等奖
+- 2021年北京市大学生机器人大赛三等奖
+- 2021北京市级大创良好结项
+
+*校级*
+
+- 2022年"菁英杯"三等奖
+- 2021-2022索尼卓越奖学金
+- 2020-2021学年中国传媒大学三好学生
+- 2020-2021学年校级一等奖学金
+- 2020-2021学年中央广播电视总台奖学金
